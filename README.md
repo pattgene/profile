@@ -1,5 +1,5 @@
  💫 About Me:
-🖥 Freahman BEng HKU<br>🌱 I’m currently learning more about blockchain & AI<br>📫 How to reach me: Email - patt.genejj@gmail.com<br>
+🖥 Freshman BEng HKU<br>🌱 I’m currently learning more about blockchain & AI<br>📫 How to reach me: Email - patt.genejj@gmail.com<br>
 
 
 ## 🌐 Socials:
